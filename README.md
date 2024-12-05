@@ -118,4 +118,4 @@ Contributions are welcome! Here's how you can contribute:
 
 Wanna reach out to me? DM me at 👇
 
-Email: mahmudul15-13791@diu.edu.bd
+Email: shuklaanupam987@gmail.com
